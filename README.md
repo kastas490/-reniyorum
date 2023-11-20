@@ -1,1 +1,1 @@
-# -reniyorum
+# -öğreniyorum
